@@ -1,3 +1,8 @@
+The world is populated by anthropomorphic animals living ordinary human lives. Species should shape body language and visual detail, but not turn the story into fantasy.
+The world is fully inhabited by **anthropomorphic animals living as ordinary people**. There are **no pets** and no human-animal hierarchy. Everyone is simply a person in this society, with fur, paws, muzzles, tails, ears, species-specific body language, and ordinary jobs, homes, schools, and social lives.
+
+
+
 # Outline
 
 Tom ist eine Kater im Alter von 18 Jahren. Er ist nicht gewöhnlich, denn während seiner Geburt lief einiges schief, sodass er heute
@@ -54,3 +59,20 @@ Bei einer Nacht und Nebel Aktion brechen die beiden in der Scheune von Nicks Opa
 Sie fahren nun gemeinsam über alte Landstraßen immer weiter nach Berlin. Unterwegs geht ihnen leider das Benzing aus. Ein Reservekanister im Kofferraum ist auch leer, weil dieser von einer Schrotladung durchsiebt wurde. Die beiden wandern zu Fuß zu einer Tankstelle und versuch dort Benzing und einen Kanister zu klauen. Nick ist ein echter Trickers und lenkt den Tankwart ab, sodass Tom den Diebstahl durchführen kann. Natürlich läuft nicht alles glatt und die beiden sind wieder auf der Flucht. 
 Letztlich können sie aber das Benzin besorgen und sind wieder mit ihrem Trabant unterwegs. 
 Irgendwann machen sie eine Pause am Flussufer der Havel und beschließen, dort zu übernachten. Bei einem Lagerfauer am Auto, haben die beiden ein sehr inniges Gespräch über Familien und dem Sinn des Lebens. Nick ist überzeugt, dass man keine Familie brauch, sondern nur gute Freunde. Nick verät nicht viel über seine Familie, nur das sie wohl kurz vor der Wende geflohen sind und Nick in der DDR zurück gelassne haben. Der Staat hat ihn für die Flucht seiner Eltern bestraft und er kam in ein sehr strenges Kinderheim. Seit dem hat er wenig Respekt vor Autorität und erschleicht sich sehr viele Dinge im Leben. 
+
+- Das Auto startet nicht mehr. Sie können einen Binneschipper überzeugen, dass Fahrzueg und sie mitzunehmen. An Board repariert Nick das Fahrzueg mit Teilen die er sich vom Schiff klaut. Tom hilft in der Küche. 
+
+- Beide schlafen an Deck und wache auf, als sie bereits mitten durch Berlin fahren. Die Crew wird auf das Fehlen von Teilen an Board aufmerksam, sodass Tom und Nick schnell mit dem Auto von Board flüchten müssen. 
+Sie fahren dann gemeinsam durch die Instadt von Berlin. 
+Tom ist überwältig von der Größe. 
+
+- Sie suchen die Eckneipe im Gesundbrunne auf. 
+
+- In der Eckkneipe werden sie von den Leuten vor Ort abgefüllt und müssen sich die endlosen und widersprüchlichen Geschichten der Gesäte anhören. Schlussendlich erfahren sie, dass Toms Vater bereits schon lange Tot ist und auf einem Friedhof in der Nähe liegt. Tom ist mit der Situation überfordert und trinkt zu viel Alkohol. Er fällt vom Stuhl und wacht erst den nächsten Tag wieder auf einer Parkbank auf. 
+Nick hat seine Sachen gewaschen und gemeinsam sprechen sie über die aktuelle Situation. Gemeinsam besuchen sie das Grab von Toms Vater. (befreiende Gäste???)
+
+- Die Nacht im Hotel am Potsdamer Platz. Durch einen Trick von Nick übernachten sie in einem 4 Stener Hotel am Potzdamer Platz. Sie baden, essen exotische Früchte und schauen gemeinsam den Film Cars auf dem Fernsehen im Zimmer. Am Abend lassen sie die Beine am Balkon baumeln und blicken über die Stadt. Sie resümieren über die Ereignisse und wie es jetzt weitergehen kann, da Tom sein Ziel erreicht hat. 
+
+- Die Eskalatin am Fürhstückstisch am nächsten Morgen. Tom und Nick fliegne auf, können aber den Hotielr irgendwie erpressen, sodass sie zwar das Hotel verlassen, aber Geld für Shopping und ein Zugticket ergattern. 
+
+- Sie Verlassen Berlin mit dem Zug und beschließen wieder in den Norden zu Toms Mutter zu fahren. 
